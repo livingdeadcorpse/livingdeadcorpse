@@ -13,10 +13,10 @@ any prns & bisexual i think ?
 **_i am not social_**, mostly when my friends are talking with other ppl i dont know i remain in silence bc i feel uncomfortable with strangers
 
 
-im in fandoms like roblox and mc args, bfdi/tpot plus roblox in general *(i dont think i like anything else in that fandom ahh category)*
+im in fandoms like roblox and mc args, bfdi/tpot, hjd/hjad/gjd plus roblox in general *(i dont think i like anything else in that fandom ahh category)*
 
        my kinnies ;;
-               »⟩ Ze, Facelulz, Sean, Two, Father, Msak__, Chance, Bluudude and alot more but i dont remember
+               »⟩ Ze, Facelulz, Sean, Two, Father, Msak__, Chance, John Doe, G666 and alot more but i dont remember
 
 
 [![melometi.jpg](https://i.postimg.cc/L6yb8qqq/melometi.jpg)](https://postimg.cc/D8XgCwPF)               
