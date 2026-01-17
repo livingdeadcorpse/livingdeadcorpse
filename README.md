@@ -16,7 +16,7 @@ any prns & bisexual i think ?
 im in fandoms like roblox and mc args, bfdi/tpot, hjd/hjad/gjd plus roblox in general *(i dont think i like anything else in that fandom ahh category)*
 
        my kinnies ;;
-               »⟩ Ze, Facelulz, Sean, Two, Father, Msak__, Chance, John Doe, G666 and alot more but i dont remember
+               »⟩ Ze, Facelulz, Sean, Two, Father, Msak__, Chance, John Doe, G666, Skeet and Crazyblox
 
 
 [![melometi.jpg](https://i.postimg.cc/L6yb8qqq/melometi.jpg)](https://postimg.cc/D8XgCwPF)               
