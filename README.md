@@ -2,7 +2,7 @@
 
 [![holamor.png](https://i.postimg.cc/5Nqf7SR4/holamor.png)](https://postimg.cc/WhzRtgVC)
 
-helloo im night or nil, call me wtv you want i dont really mind anyws
+helloo im rui or nil, call me wtv you want i dont really mind anyws
 
 
 any prns & bisexual i think ?
