@@ -7,7 +7,7 @@
 
   ![tumblr_79bfa04cb117b531deef955a812d254f_fd39e866_75](https://github.com/user-attachments/assets/c58305e8-95ca-4e84-82c6-4bed7ecdb070) [atabook](https://poisonousforest.atabook.org/)
 
-<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/4d9fb3ae-f166-4213-8b8b-b2f258a0611b" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/0f3cbcf6-6cf6-4296-a3e7-0124eba8464c" />
+<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/4d9fb3ae-f166-4213-8b8b-b2f258a0611b" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/0f3cbcf6-6cf6-4296-a3e7-0124eba8464c" />
 
 <p align="center"> 𝑫𝑵𝑰 -> 𝑫𝒂𝒓𝒌/𝑷𝒓𝒐𝒔𝒉𝒊𝒑𝒑𝒆𝒓𝒔 , 𝒑𝒑𝒍 𝒐𝒗𝒆𝒓 𝟏𝟖+ & 𝒏𝒔𝒇𝒘
 
