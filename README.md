@@ -7,3 +7,5 @@
 <p align="center"> ࿙࿚ ︶     𖥔     ︶࿙࿚
   
 [![Tumblr-l-145928146535082.png](https://i.postimg.cc/sgLz0rKf/Tumblr-l-145928146535082.png)](https://postimg.cc/PC10P0B0)
+<p align="center"> Fandomns and kinnies
+<p align="center"> 
