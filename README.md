@@ -17,4 +17,6 @@
 <p align="center"> ࿙࿚ ︶     𖥔     ︶࿙࿚
 <p align="center"> Dni : Dark/Proshippers, ppl over 18+ and @Missingchildren AKA Insomn.
 <p align="center">       𖥔     
-<p align="center"> Taken and married to the most beautiful girl ive ever seen ! https://github.com/A-ReGect ‹ MY GIRLL 
+<p align="center"> Taken and married to the most beautiful girl ive ever seen ! @A-ReGect ‹ MY GIRLL 
+
+[![Tumblr-l-138534295203564.png](https://i.postimg.cc/tJYXS4P3/Tumblr-l-138534295203564.png)](https://postimg.cc/5QWdj1sy)
