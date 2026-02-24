@@ -1,3 +1,6 @@
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Indie+Flower&size=23&pause=1000&color=8684A5&width=435&lines=Please+sign+my+ata+!" alt="Typing SVG" /></a>
+
 [![Tumblr-l-138531960945026.png](https://i.postimg.cc/Gt69Cyx4/Tumblr-l-138531960945026.png)](https://postimg.cc/N27Q8LVt)
 <p align="center">      𖥔     
 <p align="center"> Hi, im Rui / Nil 
