@@ -1,6 +1,6 @@
-[![Tumblr-l-280598478238493.png](https://i.postimg.cc/QdD8f8Hd/Tumblr-l-280598478238493.png)](https://postimg.cc/fJHQLhcG)
+[![Tumblr-l-283041591487024.png](https://i.postimg.cc/7PCtWS2V/Tumblr-l-283041591487024.png)](https://postimg.cc/t7jz1ZDZ)
 
-<p align="center"> ◟  two time ! stay friends. ◝
+<p align="center"> ◟  oh, my dear crystal . . ◝
 <p align="center"> ꒰৯ ֺ ۪ ꒰ ꒱ ׅ ֯ ໒꒱
 <p align="center"> hii im rui ₊ nil, or you can just call me by my old names if thats better
 <p align="center"> ( any prns )
@@ -11,4 +11,4 @@
 <p align="center"> dni ⨟ dark / proshippers ₊ necrophiles ₊ pedophiles ₊ any weird kink ₊ 18+ ppl ₊ ex friends and @Missingchildren AKA Charlotte / Insomn.
 
         
-[![Tumblr-l-281176751320143.png](https://i.postimg.cc/kMxXKRgT/Tumblr-l-281176751320143.png)](https://postimg.cc/Btn0G6DF)
+[![Tumblr-l-283047480148870.png](https://i.postimg.cc/L63tCsND/Tumblr-l-283047480148870.png)](https://postimg.cc/4mnHnXCH)
