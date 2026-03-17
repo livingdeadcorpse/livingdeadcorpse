@@ -12,3 +12,5 @@
 
         
 [![Tumblr-l-283047480148870.png](https://i.postimg.cc/L63tCsND/Tumblr-l-283047480148870.png)](https://postimg.cc/4mnHnXCH)
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xqw5vnxrw6lmqoxylcqp6g3lay&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=e62c2c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
