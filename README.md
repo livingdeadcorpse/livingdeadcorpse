@@ -16,3 +16,6 @@
 <p align="center"> ${\textsf{\color{#FFBB73}ISFP-T  ֪֪֪  Minor  ֪֪֪  married ⨟ almost 1 year with her ♡ }}$
 <p align="center"> ${\textsf{\color{#FDA956}I am a pretty good person, you ask my friends abt me i can ensure that ⁽ˊᵕˋ⁾}}$
 <p align="center"> ${\textsf{\color{#FF9634}i'm just pretty shy and uncomfortable knowing new ppl, i prefer if you int with my by whisper ! }}$
+<p align="center"> ${\textsf{\color{#ff9634}
+ ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝ 
+        }}$
