@@ -19,3 +19,12 @@
 <p align="center"> ${\textsf{\color{#ff9634}
  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝ 
         }}$
+
+[![93-sin-titulo-20260328175247.png](https://i.postimg.cc/Y0KZFwY3/93-sin-titulo-20260328175247.png)](https://postimg.cc/hzs2F6Cz)
+
+<p align="center"> ${\textsf{\color{#FFF3DD}My kinnies !  }}$
+<p align="center"> ${\textsf{\color{#FFDFA8}Chance is my main kin, he's my baby trust !! ♡ }}$
+<p align="center"> ${\textsf{\color{#FFBB73}Sean ₊ Ze ₊ Skeet ₊ Crazyblox ₊ Bluudude and many more but i don't remember..}}$
+<p align="center"> ${\textsf{\color{#FDA956}My fandomns are Roblox/Minecraft ARGS and Roblox in general}}$
+<p align="center"> ${\textsf{\color{#Ff9634}ଘ(੭ˊᵕˋ)੭͙
+        }}$
