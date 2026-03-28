@@ -9,7 +9,7 @@
 
 [![93-sin-titulo-20260328175247.png](https://i.postimg.cc/Y0KZFwY3/93-sin-titulo-20260328175247.png)](https://postimg.cc/hzs2F6Cz)
 
-[![94-sin-titulo-20260328175759.png](https://i.postimg.cc/L8wT53zt/94-sin-titulo-20260328175759.png)](https://postimg.cc/mP3M6Mpk)
+[![94-sin-titulo-20260328193227.png](https://i.postimg.cc/J4C1WfDB/94-sin-titulo-20260328193227.png)](https://postimg.cc/4nwC6F1J)
 
 <p align="center"> ${\textsf{\color{#FFF3DD}Hi ! I'm Exorcism  ֪֪֪  Lovine}}$
 <p align="center"> ${\textsf{\color{#FFDFA8}She  ֪֪֪  any  !  Genderfluid  ֪֪֪  omnisexual ₊ lesbian }}$
