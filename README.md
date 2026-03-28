@@ -10,3 +10,8 @@
 [![93-sin-titulo-20260328175247.png](https://i.postimg.cc/Y0KZFwY3/93-sin-titulo-20260328175247.png)](https://postimg.cc/hzs2F6Cz)
 
 [![94-sin-titulo-20260328175759.png](https://i.postimg.cc/L8wT53zt/94-sin-titulo-20260328175759.png)](https://postimg.cc/mP3M6Mpk)
+
+<p align="center"> ${\textsf{\color{#FFF3DD}Hi ! I'm Exorcism  ֪֪֪  Lovine}}$
+<p align="center"> ${\textsf{\color{#FFDFA8}She  ֪֪֪  any  !  Genderfluid  ֪֪֪  omnisexual ₊ lesbian }}$
+<p align="center"> ${\textsf{\color{#FFBB73}ISFP-T  ֪֪֪  Minor  ֪֪֪  married ⨟ almost 1 year with her ♡ }}$
+<p align="center"> ${\textsf{\color{#FDA956}I'm a pretty good person, you ask my friends abt me i can ensure that i'm just pretty shy and uncomfortable knowing new ppl, i prefer if you int with my by whisper !}}$
