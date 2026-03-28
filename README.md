@@ -28,3 +28,13 @@
 <p align="center"> ${\textsf{\color{#FDA956}My fandomns are Roblox/Minecraft ARGS and Roblox in general}}$
 <p align="center"> ${\textsf{\color{#Ff9634}ଘ(੭ˊᵕˋ)੭͙
         }}$
+
+<p align="center"> ${\textsf{\color{#FDA956}I love my gf so much ! I want to kiss her all over their face, my baby ♡ }}$
+<p align="center"> ${\textsf{\color{#FFBB73}They're the Elliot to my 007n7 (˶ᵔ ᵕ ᵔ˶)
+        }}$
+<p align="center"> ${\textsf{\color{#FFDFA8}I love you sm my sweetie pie !!!}}$
+<p align="center"> ${\textsf{\color{#FFF3DD} MWMWAAAA }}$
+
+[![v2kfgd.png](https://i.postimg.cc/3xJ6m103/v2kfgd.png)](https://postimg.cc/qzSjd8GF)
+
+[![95-sin-titulo-20260328184410.png](https://i.postimg.cc/BvgQnMFy/95-sin-titulo-20260328184410.png)](https://postimg.cc/DWSKCQBd)
