@@ -35,6 +35,8 @@
 <p align="center"> ${\textsf{\color{#FFDFA8}I love you sm my sweetie pie !!!}}$
 <p align="center"> ${\textsf{\color{#FFF3DD} MWMWAAAA }}$
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Rowdies&pause=1000&color=FFBB73&width=500&height=90&lines=ELLIOT'S+%231+YUMESHIPPER+!!)](https://git.io/typing-svg)
+
 [![v2kfgd.png](https://i.postimg.cc/3xJ6m103/v2kfgd.png)](https://postimg.cc/qzSjd8GF)
 
 [![95-sin-titulo-20260328184410.png](https://i.postimg.cc/BvgQnMFy/95-sin-titulo-20260328184410.png)](https://postimg.cc/DWSKCQBd)
