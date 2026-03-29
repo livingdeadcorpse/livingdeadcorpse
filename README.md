@@ -37,6 +37,8 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Rowdies&pause=1000&color=FFBB73&width=500&height=90&lines=ELLIOT'S+%231+YUMESHIPPER+!!)](https://git.io/typing-svg)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xqw5vnxrw6lmqoxylcqp6g3lay&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&bar_color=ffbf6b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 [![v2kfgd.png](https://i.postimg.cc/3xJ6m103/v2kfgd.png)](https://postimg.cc/qzSjd8GF)
 
 [![95-sin-titulo-20260328184410.png](https://i.postimg.cc/BvgQnMFy/95-sin-titulo-20260328184410.png)](https://postimg.cc/DWSKCQBd)
