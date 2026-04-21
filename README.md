@@ -11,7 +11,7 @@
 
 [![94-sin-titulo-20260328193227.png](https://i.postimg.cc/J4C1WfDB/94-sin-titulo-20260328193227.png)](https://postimg.cc/4nwC6F1J)
 
-<p align="center"> ${\textsf{\color{#FFF3DD}Hi ! I'm Exorcism  ֪֪֪  Lovine}}$
+<p align="center"> ${\textsf{\color{#FFF3DD}Hi ! I'm Emmet  ֪֪֪  Lovine}}$
 <p align="center"> ${\textsf{\color{#FFDFA8}She  ֪֪֪  any  !  Genderfluid  ֪֪֪  omnisexual ₊ lesbian }}$
 <p align="center"> ${\textsf{\color{#FFBB73}ISFP-T  ֪֪֪  Minor  ֪֪֪  married ⨟ almost 1 year with her ♡ }}$
 <p align="center"> ${\textsf{\color{#FDA956}I am a pretty good person, you ask my friends abt me i can ensure that ⁽ˊᵕˋ⁾}}$
