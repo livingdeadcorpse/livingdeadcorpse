@@ -4,8 +4,6 @@
 
 <p align="center"> ${\textsf{\color{#FDA956} ᡣ 𓈒⋅ ⩊ ⋅𓈒ྀིა
         }}$
-<p align="center"> ${\textsf{\color{#FFBD7B}Hurry up, it's time to supper ! }}$ 
-<p align="center"> ${\textsf{\color{#FFF3DD}Order up, i'm hot to go ! }}$
 
 [![93-sin-titulo-20260328175247.png](https://i.postimg.cc/Y0KZFwY3/93-sin-titulo-20260328175247.png)](https://postimg.cc/hzs2F6Cz)
 
@@ -29,11 +27,6 @@
 <p align="center"> ${\textsf{\color{#Ff9634}ଘ(੭ˊᵕˋ)੭͙
         }}$
 
-<p align="center"> ${\textsf{\color{#FDA956}I love my gf so much ! I want to kiss her all over their face, my baby ♡ }}$
-<p align="center"> ${\textsf{\color{#FFBB73}They're the Elliot to my 007n7 (˶ᵔ ᵕ ᵔ˶)
-        }}$
-<p align="center"> ${\textsf{\color{#FFDFA8}I love you sm my sweetie pie !!!}}$
-<p align="center"> ${\textsf{\color{#FFF3DD} MWMWAAAA }}$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Rowdies&pause=1000&color=FFBB73&width=500&height=90&lines=ELLIOT'S+%231+YUMESHIPPER+!!)](https://git.io/typing-svg)
 
