@@ -2,16 +2,16 @@
 
 [![20260508-193629.png](https://i.postimg.cc/VNBzGxpG/20260508-193629.png)](https://postimg.cc/v1TRDNQf)
 
-<p align="center"> ${\textsf{\color{#A0700A}emmet, any prns }}$
-<p align="center"> ${\textsf{\color{#2C0509}genderfluid, omnisexual n lesbian }}$
-<p align="center"> ${\textsf{\color{#20170D}working on myself }}$
+<p align="center"> ${\textsf{\color{#c75171}emmet, any prns }}$
+<p align="center"> ${\textsf{\color{#ff648d}genderfluid, omnisexual n lesbian }}$
+<p align="center"> ${\textsf{\color{#fff7e0}working on myself }}$
 
 <div align="center">
 
   [![165-sin-titulo-20260508203454.png](https://i.postimg.cc/gjDxRwqk/165-sin-titulo-20260508203454.png)](https://postimg.cc/7J5PrZWp)
 
-   [◟](https://x.com/deadlivingcorps)${\textsf{\color{#A0700A} twt }}$
-   [◟](https://swapful.atabook.org/)${\textsf{\color{#2C0509} ata }}$
+   [◟](https://x.com/deadlivingcorps)${\textsf{\color{#ff9ac2} twt }}$
+   [◟](https://swapful.atabook.org/)${\textsf{\color{#ffeff5} ata }}$
 
    </div>
 
