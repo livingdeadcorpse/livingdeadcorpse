@@ -1,4 +1,4 @@
-[![Tumblr-l-14401507505472.png](https://i.postimg.cc/Y9tkFdXQ/Tumblr-l-14401507505472.png)](https://postimg.cc/B87d9Bfv)
+[![IMG-0889.png](https://i.postimg.cc/DZZcrz1m/IMG-0889.png)](https://postimg.cc/xkwHYnxS)
 
 [![181-sin-titulo-20260518230729.png](https://i.postimg.cc/QMD4Ts6n/181-sin-titulo-20260518230729.png)](https://postimg.cc/9DxY33HG)
 
@@ -8,11 +8,11 @@
 
 <div align="center">
 
-  [![165-sin-titulo-20260508203454.png](https://i.postimg.cc/gjDxRwqk/165-sin-titulo-20260508203454.png)](https://postimg.cc/7J5PrZWp)
+[![165-sin-titulo-20260518231425.png](https://i.postimg.cc/qB65SmCq/165-sin-titulo-20260518231425.png)](https://postimg.cc/PNhy8Qyn)
 
    [◟](https://x.com/deadlivingcorps)${\textsf{\color{#ff9ac2} twt }}$
    [◟](https://swapful.atabook.org/)${\textsf{\color{#ffeff5} ata }}$
 
    </div>
 
-   [![Tumblr-l-14401105096319.png](https://i.postimg.cc/SQTqX7c2/Tumblr-l-14401105096319.png)](https://postimg.cc/dDygpCHw)
+[![lpfpkk.png](https://i.postimg.cc/xdjZZnKm/lpfpkk.png)](https://postimg.cc/HrK3cGvW)
