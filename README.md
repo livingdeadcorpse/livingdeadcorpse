@@ -1,6 +1,6 @@
 [![Tumblr-l-14401507505472.png](https://i.postimg.cc/Y9tkFdXQ/Tumblr-l-14401507505472.png)](https://postimg.cc/B87d9Bfv)
 
-[![20260508-193629.png](https://i.postimg.cc/VNBzGxpG/20260508-193629.png)](https://postimg.cc/v1TRDNQf)
+[![181-sin-titulo-20260518230729.png](https://i.postimg.cc/QMD4Ts6n/181-sin-titulo-20260518230729.png)](https://postimg.cc/9DxY33HG)
 
 <p align="center"> ${\textsf{\color{#c75171}emmet, any prns }}$
 <p align="center"> ${\textsf{\color{#ff648d}genderfluid, omnisexual n lesbian }}$
