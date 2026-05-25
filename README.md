@@ -4,3 +4,4 @@
 <p align="center">${\textsf{\color{#5A326C}Emmet ۪ minor}}$
 <p align="center">${\textsf{\color{#311573}genderfluid ۪ omnisexual}}$
 <p align="center">${\textsf{\color{#180650}focusing on my mental healt ₊ friends}}$
+<p align="center">${\textsf{\color{#180650}(˶• ֊ •˶)}}$
