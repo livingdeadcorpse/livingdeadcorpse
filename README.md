@@ -13,6 +13,8 @@
 
 [![191-sin-titulo-20260524200429.png](https://i.postimg.cc/WbMSNLBX/191-sin-titulo-20260524200429.png)](https://postimg.cc/Ln8jD761)
 
+<div align="center">
+
 <a href="https://elliiotit.straw.page">
 <img src="https://i.postimg.cc/05LMtzH7/195-sin-titulo-20260524213131.png" width="190"> <a
 
@@ -20,3 +22,5 @@
 <a href="https://swapful.atabook.org/">
 <img src="https://i.postimg.cc/pTWyF8rN/195-sin-titulo-20260524213247.png" width="190">
 </a>
+
+</div>
