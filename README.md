@@ -16,11 +16,11 @@
 <div align="center">
 
 <a href="https://elliiotit.straw.page">
-<img src="https://i.postimg.cc/05LMtzH7/195-sin-titulo-20260524213131.png" width="190"> <a
+<img src="https://i.postimg.cc/pTWyF8rN/195-sin-titulo-20260524213247.png" width="190"> <a
 
   
 <a href="https://swapful.atabook.org/">
-<img src="https://i.postimg.cc/pTWyF8rN/195-sin-titulo-20260524213247.png" width="190">
+<img src="https://i.postimg.cc/05LMtzH7/195-sin-titulo-20260524213131.png" width="190">
 </a>
 
 </div>
