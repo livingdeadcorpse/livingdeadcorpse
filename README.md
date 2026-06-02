@@ -2,3 +2,6 @@
 
 
 [![18216.png](https://i.postimg.cc/Kvq3p8nW/18216.png)](https://postimg.cc/D8Gz8FpQ)
+
+
+<p align="center">${\textsf{\color{#9A8796}ℰmmet ᭡ 𝒾𝓼𝓯𝓹-𝓽}}$
