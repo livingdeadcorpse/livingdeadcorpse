@@ -16,6 +16,16 @@
 
 [![205-sin-titulo-20260602164709.png](https://i.postimg.cc/QMr6CmH0/205-sin-titulo-20260602164709.png)](https://postimg.cc/jDZ6kz67)
 
+<div align="center">
 
+<a href="https://elliiotit.straw.page">
+<img src="https://i.postimg.cc/05BrsH4b/bloggif-6a1f48248995d.gif" width="190"> <a
+
+  
+<a href="https://swapful.atabook.org/?page=1">
+<img src="https://i.postimg.cc/B6ZtSWsZ/bloggif-6a1f4816285db.gif" width="190">
+</a>
+
+</div>
 
 [![204-sin-titulo-20260602154727.png](https://i.postimg.cc/8CwF2kWT/204-sin-titulo-20260602154727.png)](https://postimg.cc/QB9x530z)
