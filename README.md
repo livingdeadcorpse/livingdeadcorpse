@@ -14,4 +14,8 @@
 
 <p align="center">${\textsf{\color{#9A8796}𝒾 love every single one of my friends .ᐟ xoxo }}$
 
+[![205-sin-titulo-20260602164709.png](https://i.postimg.cc/QMr6CmH0/205-sin-titulo-20260602164709.png)](https://postimg.cc/jDZ6kz67)
+
+
+
 [![204-sin-titulo-20260602154727.png](https://i.postimg.cc/8CwF2kWT/204-sin-titulo-20260602154727.png)](https://postimg.cc/QB9x530z)
