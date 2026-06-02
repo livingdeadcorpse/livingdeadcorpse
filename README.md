@@ -4,4 +4,6 @@
 [![18216.png](https://i.postimg.cc/Kvq3p8nW/18216.png)](https://postimg.cc/D8Gz8FpQ)
 
 
-<p align="center">${\textsf{\color{#9A8796}ℰmmet ᭡ 𝒾𝓼𝓯𝓹-𝓽}}$
+<p align="center">${\textsf{\color{#9A8796}ℰmmet ᭡ 𝒾𝓼𝓯𝓹-t  ₊  𝐦inor}}$
+
+<p align="center">${\textsf{\color{#775D70}𝓣aken .ᐟ  ²/6  ♡ }}$
