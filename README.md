@@ -19,11 +19,11 @@
 <div align="center">
 
 <a href="https://elliiotit.straw.page">
-<img src="https://i.postimg.cc/bYTWD7hC/bloggif-6a1f48248995d-ezgif-com-gif-maker.gif" width="190"> <a
+<img src="https://i.postimg.cc/5NzzkV2S/bloggif-6a1f4cb117cf4-ezgif-com-gif-maker.gif" width="190"> <a
 
   
 <a href="https://swapful.atabook.org/?page=1">
-<img src="https://i.postimg.cc/RF18T8nS/bloggif-6a1f4816285db-ezgif-com-gif-maker.gif" width="190">
+<img src="https://i.postimg.cc/zvsgXd0d/bloggif-6a1f4ca0bec40-ezgif-com-gif-maker.gif" width="190">
 </a>
 
 </div>
