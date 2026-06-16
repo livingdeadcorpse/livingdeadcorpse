@@ -1,6 +1,6 @@
 <div align="center">
   
-  <p align="center">${\textsf{\color{#D7864B} Bésame, junta tus labios con los míos otra vez}}$
+  <p align="center">${\textsf{\color{#E3D690} Bésame, junta tus labios con los míos otra vez}}$
 
 [![231-sin-titulo-20260616164834.png](https://i.postimg.cc/V6xp8tmn/231-sin-titulo-20260616164834.png)](https://postimg.cc/DJcBQ8Ww)
 
